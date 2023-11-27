@@ -13,7 +13,6 @@
 - A developer who passionate about constantly learning and improving 
 - A student who is currently pursuing a Degree in Artificial Intelligence
 - Excited to connect with like-minded professionals
-- Self-learning web development and game development currently
 
 <br><br><br><br><br><br>
 
