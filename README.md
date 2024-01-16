@@ -11,7 +11,7 @@
 <br>
 
 - A developer who passionate about constantly learning and improving 
-- A student who is currently pursuing a Degree in Artificial Intelligence
+- A fresh graduate who is currently seeking for opportunities
 - Excited to connect with like-minded professionals
 
 <br><br><br><br><br><br>
